@@ -16,3 +16,7 @@ Answer the questions below
 * Something interesting about me is
 * Ask Mr. Vu anything:
 * List your sports and extracurriculars you participate in
+
+1. I am 1000 trophies on Dynamike
+2. Why is Alan Dam so silly
+3. OCAD, FRC, Badminton, Kickboxing
